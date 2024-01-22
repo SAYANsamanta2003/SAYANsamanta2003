@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning ...web_dev
 - 💞️ I’m looking to collaborate on ...supreme power 
 - 📫 How to reach me ...mail'samanta2003sayan@gmail.com'
+- 👨 linkedin -"https://www.linkedin.com/in/sayan-samanta-788858246/"
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
